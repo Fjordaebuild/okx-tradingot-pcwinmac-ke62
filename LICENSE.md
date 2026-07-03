@@ -1,4 +1,4 @@
-# 
+# Ultimato okx trading bot ferramentas for Mac OS | VIP okx trading bot ferramentas for PC Windows. Featuring pools de liquidez DEX and negociação de futuros — optimized for maximum performance.
 
 
 
